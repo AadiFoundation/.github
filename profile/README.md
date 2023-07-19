@@ -19,9 +19,9 @@ We believe that collective action is essential for achieving our goals. Here are
 To learn more about our organization and the work we do, please visit our [website](https://). Here, you'll find detailed information about our projects, upcoming events, and ways to get involved.
 
 ### 🍿 Fun Facts
-
-- Our team loves starting the day with a healthy breakfast to fuel our energy and creativity.
-- We believe in the power of collaboration and that small actions can create significant impacts.
+- 🌱 Did you know that Aadi Foundation was founded by a group of passionate individuals who started their journey with a single mission in mind: to create a positive impact on society?
+- 🚀 Our team members come from diverse backgrounds, including environmental science, social work, and technology. This diversity fuels our creativity and helps us approach problems from different perspectives.
+- 🍃 We are proud to be a sustainable organization. Our office is powered by renewable energy, and we actively promote eco-friendly practices within our team and community.
 
 Join us in our mission to create a positive change in society! Together, we can build a better future.
 
